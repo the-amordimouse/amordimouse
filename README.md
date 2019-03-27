@@ -1,0 +1,2 @@
+# amordimouse
+belajar dan belajar
